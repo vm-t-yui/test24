@@ -1,1 +1,1 @@
-NGAAAAAAA!!!
+NGAAAA!!!
